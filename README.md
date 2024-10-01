@@ -2,6 +2,7 @@
 - 👀 I’m interested in Blockchain, web3 , AI and soccer
 - 🌱 I’m currently learning FULL STACK DEV , MACHINE LEARNING AND ARTIFICIAL INTELLINGENCE
 - 📫 you can reach me on my email (kumarvishwa112004@gmail.com) , here itself , or insta handle :@V1_shwa
+- [![An image of @bornin112004's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/bornin112004)](https://holopin.io/@bornin112004)
 
 <!---
 Bornin112004/Bornin112004 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
