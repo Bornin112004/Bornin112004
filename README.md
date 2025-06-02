@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **kumarvishwa112004@gmail.com**
 
-- 📄 Resume [https://docs.google.com/document/d/1J3yZMZkWs3wZ5vK8Gtdtpbax0wB9k_pp8rJNYOy8lFU/edit?usp=drive_link](https://docs.google.com/document/d/1J3yZMZkWs3wZ5vK8Gtdtpbax0wB9k_pp8rJNYOy8lFU/edit?usp=drive_link)
+- 📄 Resume [https://docs.google.com/document/d/1_qgx8C32TCV7edZKv87dA3JUjO_-OAKFjH5oX4fi4po/edit?usp=sharing](https://docs.google.com/document/d/1_qgx8C32TCV7edZKv87dA3JUjO_-OAKFjH5oX4fi4po/edit?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
